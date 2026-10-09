@@ -1,0 +1,2 @@
+# VerstkaProjectShastitkoNA
+Project
